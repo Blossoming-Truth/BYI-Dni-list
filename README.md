@@ -5,5 +5,5 @@ in rare cases if i tend to avoid you, that means i feel uncomf meeting anyone(or
 DNI meanings =
 Dniuml /p = (Dni unless my love /platonic, i have a very kool bsf ok..)
 Dniup = Dni unless party
-dniuPin = dni unless pinned
-if you feel uncomf , dont wanna talk, or i did something wrong. PLEASE I BEG YOU COMMUNICATE IT WITH ME. i hate being ignored so suddenly especially when i feel like i didnt do anything wrong.
+dniuPin = dni unless pinned. 
+❗if you feel uncomf , dont wanna talk, or i did something wrong. PLEASE I BEG YOU COMMUNICATE IT WITH ME. i hate being ignored so suddenly especially when i feel like i didnt do anything wrong.❗
